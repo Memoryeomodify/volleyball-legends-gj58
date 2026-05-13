@@ -1,4 +1,4 @@
-
+Get ahead in forsaken with elite forsaken Script, featuring auto-collect and undetectable. Download now to dominate every match with ease and confidence, thanks to its advanced
 
 
 
